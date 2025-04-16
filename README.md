@@ -36,7 +36,7 @@ Feel free to explore and adapt these strategies for your own use. Good luck!
 
 ---
 
-![Png](https://i.ibb.co/q3ZpSYDj/Immagine-2025-04-10-222432.png)
+![Png](https://i.ibb.co/qLkmshhP/Immagine-2025-04-16-234336.png)
 
 ## Customizations
 
